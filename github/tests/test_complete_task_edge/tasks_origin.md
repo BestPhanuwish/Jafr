@@ -1,0 +1,2 @@
+- next week task Due: 08/08/23 not complete
+- reverse ideology Due: 31/07/23 not complete

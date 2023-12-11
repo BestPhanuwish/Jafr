@@ -1,0 +1,5 @@
+- Eat breakfast Due: 01/08/23 not complete
+- Take shower Due: 01/08/23 not complete
+- Play game Due: 02/08/23 not complete
+- Do homework Due: 03/08/23 not complete
+- FUMO ᗜˬᗜ Due: 04/08/23 not complete
